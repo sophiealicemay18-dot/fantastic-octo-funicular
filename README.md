@@ -12,6 +12,8 @@ Here’s your recruiter-facing **Course Engagement Protocol**, Sophie — styled
 
 ---
 
+
+
 ### 🎯 Engagement Strategy: How Sophie Made the Most of This Course
 
 | Tip | Strategy | Sovereign Execution |
